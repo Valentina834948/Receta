@@ -1,0 +1,7 @@
+Paso 1: Rompe las galletas Oreo en trozos más o menos pequeños y resérvalos en un bol. Puedes triturarlas manualmente o hacerlo con una batidora eléctrica, como tu prefieras. Si lo haces con batidora notarás menos los trocitos de galleta una vez terminado el helado de Oreo.
+
+Paso 2: Bate la crema de leche o nata en el bol de metal que tienes en la nevera, pero sin llegar a montarla. A la hora de determinar cómo hacer helado de Oreo casero, o cualquier otro que incluya nata en sus ingredientes, es fundamental saber que la temperatura de este producto es una de las claves del éxito. Decíamos que debe estar muy fría y eso es porque de esta manera se bate mejor y se espesa; si está caliente o templada no espesará igual.
+
+Paso 3: Añade la leche condensada, los trozos de galleta y mezcla bien todos los ingredientes. Seguidamente, vierte la mezcla del helado de Oreo casero en una bandeja de horno o en un molde para hacer helados con ayuda de una lengua pastelera y guárdalo en el refrigerador durante al menos 6 horas. Para acelerar el proceso, puede servar el helado de galleta Oreo en el congelador durante 3 horas.
+
+Paso 4: Una vez pasado ese tiempo, el helado de Oreo casero estará listo para servir. Te recomendamos que lo consumas lo antes posible, ya que se derrite muy rápido si no está en la nevera o el congelador.
